@@ -1,0 +1,3 @@
+# learning
+first time
+redmi
